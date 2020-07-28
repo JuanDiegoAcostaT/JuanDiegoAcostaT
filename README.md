@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Juan Diego 😄👾👽
 
 <img src="https://i.imgur.com/ihlefPc.png" width="100%" />
 
