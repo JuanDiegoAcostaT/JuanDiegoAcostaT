@@ -4,7 +4,7 @@
 
 Experienced software developer with great capacity for self-learning and problem solving on the way to product delivery in quality and effectiveness.
 
-<img src="https://media1.giphy.com/media/jTrWERCjKADD6zIv2m/giphy.gif?cid=ecf05e47w1kxdw1ldqfigoq492r0b2xuaqzzic59033pwxo9&rid=giphy.gif" />
+<img src="https://media3.giphy.com/media/YRyfdXYIclTWU0YgM4/giphy.gif?cid=ecf05e474rwsmxvkmojwmtcuni08xbwaj1jat6qqufwk380o&rid=giphy.gif" />
 
 
 
