@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<img src="https://i.imgur.com/q95k674.png" />
+<img src="https://i.imgur.com/q95k674.png" width="100" />
 
 **JuanDiegoAcostaT/JuanDiegoAcostaT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
